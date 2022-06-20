@@ -1,0 +1,9 @@
+# CLEAN CODE WORDLIST
+
+*
+*
+*
+*
+*
+*
+*
