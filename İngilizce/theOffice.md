@@ -1,9 +1,0 @@
-# THE OFFICE WORDLIST
-
-*
-*
-*
-*
-*
-*
-*
